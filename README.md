@@ -1,1 +1,0 @@
-# tecweb_ry
